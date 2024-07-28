@@ -37,5 +37,16 @@ Second lecture was of Peer Internship and was conducted by our Seniors.Firstly t
 |Auditorium Session|Dr. S.B. Singh|Future Goals|
 |Auditorium Session|Dr.Pushpinder Singh|Youth|
 
+July 12,2024,The Third day of Induction Program.It was conducted by our college in Auditorium.First Lecture was conducted by the incharge of Digital Marketing Club,Dr.Amit Kamra.He told us about that social media was not only for entertainment but also could be used to enhance the employability in society.He told us that How can we use social media as our career.Sir also introduces us to the college's social media pages.He
+ told us that everything have its pros and cons but we have to focus on its pros only.
+
+ Second Lecture was conducted by Dr. S.B.Singh.He told us to write our goals,our strong points,our weak points and where do we see ourselves in future? Sir inspired us to dream about our goals and with the help of hardwork we can easily acjieve it.
+
+ Third Lecture was conducted by Dr.Pushpinder Singh.He shared his views on the topic of'Youth'.He also explained a very beautiful line i.e On whose shoulders lie the hope and responsibility of establishing Truth,Justice and Ever lasting peace in the world.He also shared educare process.He also shared his life experience and stories.He told us to set Smart Goals.S stands for Specific,M stands for Measurable,A stands for Achievable,R stands for Relevant and T stands for Time Bound.It was an interesting as well as informative session for us.
+
+ ## DAY 4
+
+ 
+
 
 
