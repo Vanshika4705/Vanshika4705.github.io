@@ -78,6 +78,33 @@ Second Lecture was taken by Mr.Sanchit Mehra.He continued the topic of Integrati
 |Auditorium Session|Librarian|Central Library|
 |Auditorium Session|Er.Lakhveer Singh|CML|
 
+July 17,2024 The sixth day of Induction program.First Session was taken by Mr.Jaswinder Singh,Incharge of IAPTHe told us that we are surrounded by Science.It should be understand with meaning.If we understand the meaning of Science,it will become easy for us to learn.We will able to understand the concept easily and will not ever forget it.He showed us many experiments such as rubbing the balloon on the hand,dipping glass in the bowl filled with water,etc.It was an interactive and amazing session.Even he connected Physics with Gurbaani. Second Lecture was conducted by NCC team.They shared the role of NCC and what does NCC have.It also have an Air Wing now.Third lecture was taken by Er Jasvir Singh the coordinator of NSS.The college has self supporting NSS units.They are doing many social campaigns like blood donation,tree plantation and Drug De-addiction campaigns etc.
+Fourth lecture was conducted by our Librarian.She told us How to apply for Library Card and about the facilities provided to us by Library.
+Fifth Lecture was conducted by Er Lakhveer Singh ,the coordinator of CML.The college has a multi faceted learning centre (CML) which aims at promoting the holistic development of Students.He also shared the information regarding NPTEL(SWAYAM).It was a quite important and informative class.
+
+
+
+
+
+
+
+
+
+
+
+
+July 18,2024 The seventh Day of Induction program.First lecture was conducted by Prof Harpal Singh Pannu.He shared some stories of Guru Nanak Dev ji.It was a wonderful session.Second Lecture was conducted by Dr H.S.Rai.He shared a poll regarding What is the first word that comes to your mind when you heard a word "Examination"?For me the word is competition.Second poll was about the suggestions for examination.He explained us How examination is twken in college?Sir shared some information about the websites such as Github,Duck Duck go,Free CAD,Libre DWG,Open Street Map.
+Third thing was Department Visit.We met our HOD and teachers. We visited our department labs such as Computational Lab,Microwave lab,ENGG.lab,EDA lab,Project Lab etc.They showed us the working model of Robotic Arm and How the arm work?
+
+
+
+
+
+
+
+July 19,2024 The eighth day of Induction program.First lecture was conducted by Prof.Jasmine Kaur.We studied about Human Being as the coexistence of Self and Body which cannot be seen but it can be felt is known as self.and the thing whic can be seen or felt is called body.She explained the basic requirements of self and body.Second topic was Understanding Human Being with Family.Relationship with oneself and another self is definite.It can be recognised or not recognised.Second lecture was taken by our seniors.They told us How to use College website?and some basic information about college life and calculations done in the college during examination checking etc.It was an informative class.
+
+
 
 
 
