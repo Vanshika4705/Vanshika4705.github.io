@@ -46,7 +46,43 @@ July 12,2024,The Third day of Induction Program.It was conducted by our college 
 
  ## DAY 4
 
+ |Lecture|Conducted by|Topic|
+ | :-----| :-----------| :--------|
+ |Peer Internship|Seniors|Canva|
+ |Mathematics|Mr.Sanchit Mehra|Integrals|
+
+ On July 15,2024 The lecture was conducted by Seniors.They taught us How to use Canva?They explained each and every single step of Canva.We got to know  How to make our own templates?During Lecture we mde our own templates,generated the QR code of college and an advertisement for Causmic Club.
+![causmic club](https://github.com/user-attachments/assets/f4857547-480e-41c6-be59-62ba3e78db21)
+This flyer is created by me under the guidance of our seniors.
+
+Second Lecture was taken by Mr.Sanchit Mehra.He revised the topic of Integration.We solved many questions upto the topic of Partial Fraction.Rest of the topic would be in the next class.He explained the topic very well.
+
+## Day 5
+
+|Lecture|Conducted By|Topic|
+| :-----| :------------| :----------|
+|UHV|Prof.Jasmine Kaur|Universal Human Values|
+|Mathematics|Mr.Sanchit Mehra|Integrals|
+
+On July 16,2024 The first lecture was taken by Ms.Jasmine Kaur.She taught us a new subject Universal Human Values.She explained the topic Value Education.It means What is valuable for you?If oit is valuable and important for you then it makes you happy or not.Value Education and Skill Development go hand in hand.She taught us about Self exploration.
+
+Second Lecture was taken by Mr.Sanchit Mehra.He continued the topic of Integration.We solved many questions and practised it very well.Both the lectures were interactive and amazing.
+
+## DAY 6
+
+|Lecture|Conducted By|Topic|
+| :-------| :------------| :---------|
+|Auditorium Lecture|Mr.Jaswinder Singh|Basic Principle of Science|
+|Auditorium Session|NCC Team|NCC|
+|Auditorium Session|Er.Jasvir Singh Grewal|NSS|
+|Auditorium Session|Librarian|Central Library|
+|Auditorium Session|Er.Lakhveer Singh|CML|
+
+
+
+
  
+
 
 
 
